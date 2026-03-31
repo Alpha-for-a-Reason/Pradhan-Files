@@ -1,3 +1,20 @@
+> [!IMPORTANT]
+> 🚀 **Pradhan File Release Announcement**
+> 
+> 📅 The **Pradhan file** will be released on **14th June or 15th June**.
+> 
+> ⏳ Stay tuned for the official update!
+
+
+
+
+
+
+
+
+
+
+
 > [!NOTE]
 >
 > The Female is from Jamshedpur, Asangi
