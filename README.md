@@ -1,31 +1,15 @@
-> [!IMPORTANT]
-> 🚀 **Pradhan File Release Announcement**
-> 
-> 📅 The **Pradhan file** will be released on **14th June or 15th June**.
-> 
-> ⏳ Stay tuned for the official update!
-
-
-## 📢 🔥 IMPORTANT UPDATE
-
-> 🚀 **Pradhan File Release**
->
-> 📅 **Expected Date:** 14th June / 15th June  
-> 📦 **File Name:** Pradhan File  
->
-> ⚡ Stay tuned for the release!
-
-
-## 🚀 Pradhan File Release
+##   🚀 Pradhan File Release
 
 ━━━━━━━━━━━━━━━━━━━━━━  
-📢 **Announcement**  
+📢 **File Release Announcement**
 
-📅 Release Date: **14th June / 15th June**  
-📂 File: **Pradhan File**  
+📅 Release Date: **14th June / 15th June, (2026)**
+
+📂 File Name: **Pradhan File**  
 
 ⏳ Stay tuned...  
 ━━━━━━━━━━━━━━━━━━━━━━
+
 
 
 
