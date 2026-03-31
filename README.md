@@ -18,3 +18,6 @@ and what you guys did, first of all you used harsh language (motherfucker), is t
 
 
 
+> [!WARNING]
+>
+> 2nd Warning for her brother, If you try to be an oversmart then i have to release your file first & you know what am i capable of and what i have , example to tum dekh he liya hai, ese he ladki ka wajah se ladka log false case me fas jata hai aur ladka ko kv v insaaf nhi milta hai. (Chutiye kya lagta hai usko ye sab krke wo bach jayegi, Class ke adhiktar ladkon ko pta hai ki wo kis type ki ladki hai, Game shi khel rhi thi wo lekin Opponent galat choose kr li. Jahannum me v jagah nhi milne dunga usko & i will make sure of it !
