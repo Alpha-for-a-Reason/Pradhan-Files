@@ -50,9 +50,9 @@ and what you guys did, first of all you used harsh language (motherfucker), is t
 > [!IMPORTANT]
 > 🚧 **Pre-Release Notice**
 >
-> This repository is currently under development and may contain incomplete or partial content.
+> This repository is currently under development and incomplete.
 >
-> 🔓 Full access will be granted once all files, features, and documentation are successfully uploaded.
+> 🔓 Full access will be granted once all files, video, audio and screenshots are successfully uploaded.
 >
 > 📅 Please refer to the **expected release date mentioned above** for the official launch timeline.
 >
