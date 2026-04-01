@@ -59,3 +59,6 @@ and what you guys did, first of all you used harsh language (motherfucker), is t
 > ⚠️ Until then, content may change, be updated, or be temporarily unavailable.
 >
 > 🚀 Stay tuned for the complete release—coming soon!
+
+
+https://github.com/user-attachments/assets/c4c37355-41d5-42da-b949-fc58e35958c5
