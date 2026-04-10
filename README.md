@@ -62,3 +62,11 @@ and what you guys did, first of all you used harsh language (motherfucker), is t
 
 
 https://github.com/user-attachments/assets/c4c37355-41d5-42da-b949-fc58e35958c5
+
+
+
+
+
+## What i want
+
+I only want that the Bitch Apologize to my parents what she did (harming my reputation) and by touching my parents feet otherwise i expose each and everything and public will decide who is wrong and who is right, i will do, and i'll make sure of it even  it cost me my life or land me in prison, Because i know i'm not wrong.
