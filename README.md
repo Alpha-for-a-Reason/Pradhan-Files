@@ -80,6 +80,6 @@ https://github.com/user-attachments/files/26634800/freecompress-04-10-2026.09.08
 All data files are Encrypted, if i Decrypt the files & make it Public then Pradhan ji aap khi ke nhi rhenge !
 
 
-## 1st Audio with abdul (Athar) and Pradhan, talking about Physical...
+## 1st Audio with abdul (Ath@r) and Pradhan, talking about Physical...
 https://github.com/user-attachments/files/26649464/QVVEXzIwMjUwMTE0XzIzMDMzNjA4OC5tcDM.mp3
 https://github.com/user-attachments/files/26649462/QVVEXzIwMjUwMjAxXzA1NTAxMzE3Ni5tcDM.mp3
